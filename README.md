@@ -1,4 +1,4 @@
-👋 Leona Neftaliem - PhD Student, E-IPER, Stanford University. 
+👋 Leona Neftaliem - PhD Student, Emmett Interdisciplinary Program in Environment and Resources (E-IPER), Stanford University.
 NSF Graduate Research Fellow and Knight-Hennessy Scholar. 
 Previously: Biological Science Technician, Smithsonian Environmental Research Center. 
 George Washington University Biology '21.
